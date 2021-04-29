@@ -1,2 +1,3 @@
 # presentacion-de-power-point-
-true tech 
+https://es.slideshare.net/RaydellSidney/plan-de-marketing-para-proyecto-final-de-algoritmo
+
